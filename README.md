@@ -1,2 +1,2 @@
 # TokenLogger-Java
-1714Noodix/Tokenlogger-Java
+https://discord.gg/4bPCcreHMM ;)
